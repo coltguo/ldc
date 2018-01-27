@@ -1,1 +1,1 @@
-个的文档vgsdvsvgdgvsdgv
+莱德币是基于莱特币底层开发而来
